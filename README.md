@@ -1,2 +1,1 @@
-# my-dream
-Repository My Dream
+Pengen Beli PC Baru :') (RTX 3060)
